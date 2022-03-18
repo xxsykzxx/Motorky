@@ -13,6 +13,8 @@ Výbava:
 - Racing páčky M-Style
 - Rolny M[číslo]
 - Gripy M-style
+- Kryt pod motor
+- Závažá do řidítek
 
 Najeto: 57xxx (na motorce se jedu někdy projet)
 
