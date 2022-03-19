@@ -25,7 +25,7 @@ Sezóna 2021:
 - Vzduchový filtr (Hiflofilter) + přidám K&N Filter 
 - Olejový filtr
 - Olej
-- Čištění motoru [sada]
+- Dekarbonizace (sada BG 109,116,208)
 
 K motorce přidám :
 - Origo: páčky, výfuk, blinkry [možna všechny]
