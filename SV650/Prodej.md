@@ -35,6 +35,11 @@ K motorce přidám :
 
 Motorka byla padená. Změna barvy z modré na červenou kvůli sladění.
 
-Motorka je dobrá volba pro začátečníky. Důvod prodeje přechod na silnější motorku.
+Motorka je dobrá volba pro začátečníky. Garážovaná. Důvod prodeje přechod na silnější motorku.
 
-Na prodej extra nespěchám, cena: 41 000 Kč
+Pro více informaci a fotek stačí napsat.
+
+Email: xxsykzxx@gmail.com
+Tel: +420 739 822 198
+
+Cena: 41 000 Kč
