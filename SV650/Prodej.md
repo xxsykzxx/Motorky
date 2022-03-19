@@ -30,7 +30,7 @@ Sezóna 2021:
 - Dekarbonizace motoru (sada BG 109,116,208)
 
 K motorce přidám :
-- Origo: páčky, výfuk, 4x blinkry, kolo (přední/zadní) bez pneu, 2x ventilové písty 13501-20F50
+- Origo: páčky, stupačky, výfuk, 4x blinkry, kolo (přední/zadní) bez pneu, 2x ventilové písty 13501-20F50
 - M-style grip + páčka, brzdovou kapalinu DOT3&4, 2L oleje 10W40 (Millers oils) + zbytek 10w40 (Motul) , brzdové destičky
 
 Motorka byla padená. Změna barvy z modré na červenou kvůli sladění.
