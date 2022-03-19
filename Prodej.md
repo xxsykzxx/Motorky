@@ -11,15 +11,16 @@ Výbava:
 - Laděný výfuk SC Project + Vložka
 - Přepákování
 - Racing páčky M-Style
-- Rolny M[číslo]
+- Rolny
 - Gripy M-style
 - Kryt pod motor
 - Závažá do řidítek
+- řidítka M-Style
 
 Najeto: 57xxx (na motorce se jedu někdy projet)
 
 Sezóna 2021:
-- Nové pneu BridgeStone S21 [DOT]
+- Nové pneu BridgeStone S21 [DOT 3720]
 - Svíčky
 - Vzduchový filtr (Hiflofilter) + přidám K&N Filter 
 - Olejový filtr
