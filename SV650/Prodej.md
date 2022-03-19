@@ -17,6 +17,7 @@ Výbava:
 - Závaží do řidítek
 - řidítka M-Style
 - SAMCO Sport silikonové chladič hadice
+- 12V zásuvka
 
 Najeto: 57xxx (na motorce se jedu někdy projet)
 
