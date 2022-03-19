@@ -14,7 +14,7 @@ Výbava:
 - Rolny
 - Gripy M-style
 - Kryt pod motor
-- Závažá do řidítek
+- Závaží do řidítek
 - řidítka M-Style
 - SAMCO Sport silikonové chladič hadice
 
