@@ -24,12 +24,12 @@ Sezóna 2021:
 - Svíčky
 - Vzduchový filtr (Hiflofilter) + přidám K&N Filter 
 - Olejový filtr
-- Olej
+- Olej (pred 4xxx km)
 - Dekarbonizace (sada BG 109,116,208)
 
 K motorce přidám :
-- Origo: páčky, výfuk, blinkry [možna všechny]
-- M-style grip + páčka, brzdovou kapalinu DOT3&4, 2L oleje 10W40 (Millers oils)
+- Origo: páčky, výfuk, 4x blinkry, kolo (přední/zadní) bez pneu
+- M-style grip + páčka, brzdovou kapalinu DOT3&4, 2L oleje 10W40 (Millers oils) + zbytek , brzdové destičky.
 
 Motorka byla padená. Změna barvy z modré na červenou kvůli sladění.
 
