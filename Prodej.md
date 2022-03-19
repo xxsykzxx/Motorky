@@ -28,7 +28,7 @@ Sezóna 2021:
 
 K motorce přidám :
 - Origo: páčky, výfuk, blinkry [možna všechny]
-- M-style grip + páčka, brzdovou kapalinu DOT[číslo], olej [čislo]
+- M-style grip + páčka, brzdovou kapalinu DOT3&4, 2L oleje 10W40 (Millers oils)
 
 Motorka byla padená. Změna barvy z modré na červenou kvůli sladění.
 
